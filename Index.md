@@ -39,6 +39,9 @@ Hi, I am [Ritwik Ranjan](https://github.com/ritwikranjan6130)
 
 Hi, I am [shivani jain](https://github.com/shivanijain1)
 
+Hi, I am [Anukrity Varshney](https://github.com/anukrityvarshney)
+
+
 Hi, I am.[Pranav Mahajan](https://github.com/pranav3798)
 
 
